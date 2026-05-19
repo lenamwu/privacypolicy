@@ -1,2 +1,0 @@
-# privacypolicy
-bite privacy policy
